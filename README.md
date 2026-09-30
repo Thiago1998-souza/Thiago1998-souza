@@ -23,6 +23,6 @@
 
 ## 📬 Vamos Conectar?
 
-- **LinkedIn**: [linkedin.com/in/thiago-souza](https://www.linkedin.com) *(atualiza com o teu link do LinkedIn)*
+- **LinkedIn**: [linkedin.com/in/thiago-souza](https://www.linkedin.com/in/thiago-souza-a71681156/)
 - **GitHub**: [github.com/Thiago1998-souza](https://github.com/Thiago1998-souza)
 -
